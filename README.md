@@ -1,1 +1,1 @@
-"# RaNaGe_privacy_policy" 
+RaNaGe_privacy_policy
